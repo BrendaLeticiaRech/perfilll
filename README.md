@@ -12,4 +12,4 @@ Minha cor preferida é preto 🖤
 # Você pode entrar em contato comigo 📞
   rech.brenda@escola.pr.gov.br
  
-!{}(https://media1.tenor.com/m/Jc0RiHSyLC4AAAAC/milk-mocha.gif)
+!{}(https://c.tenor.com/Jc0RiHSyLC4AAAAC/tenor.gif)
